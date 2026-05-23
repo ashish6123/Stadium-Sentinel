@@ -13,7 +13,7 @@
 
 India's cricket stadiums host 66,000–132,000 fans per match. When something goes wrong — a gate surge, sudden rain, a suspicious ticket cluster, or a post-match celebration — the operations team gets calls from 10 different radio channels, checks spreadsheets, and tries to make a decision manually. It takes 15 minutes. By then, people are already crushed against barriers.
 
-**The Chinnaswamy 2024 incident is proof this gap is real and deadly.**
+**The Chinnaswamy 2025 incident is proof this gap is real and deadly.**
 
 ---
 
